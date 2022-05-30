@@ -1,4 +1,4 @@
-### OOO MY GOODY!!!  candy lover skater nostalgic gamer
+### OOO MY GOODY!!!  candy lover skater! nostalgic gamer <3
 
 <!--
 **kgames12/kgames12** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
